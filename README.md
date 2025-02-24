@@ -1,0 +1,1 @@
+# is_yasaminda_esit_firsatlar
